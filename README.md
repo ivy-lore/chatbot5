@@ -1,7 +1,7 @@
 Shop information
 
 Owner:
-Mrs.Shafikah  
+Mrs.Shafikah   
 
 Time open:
 Everyday from 9am to 6pm (Except monday)
