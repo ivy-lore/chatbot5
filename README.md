@@ -7,7 +7,7 @@ Time open:
 Everyday from 9am to 6pm (Except monday)
 
 Website Link:
-(https://gamma.app/docs/Anime-Store-pfs3egqki6m17sr?mode=doc)
+(https://anime-emporium-zb02rzu.gamma.site/)
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
